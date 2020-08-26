@@ -1,0 +1,2 @@
+# pinko
+Pinkoshina lorati
